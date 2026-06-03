@@ -82,6 +82,7 @@ The business is committed to:
 
 Use biodegradable packaging.
 Supporting local farms.
+Create more job opportunities for the youth of South Africa.
 
 
 
